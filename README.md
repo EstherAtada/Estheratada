@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on everything data analysis and projects
 - 🤔 I’m looking for help with breaking down technical concepts
 - 💬 Ask me about my learning journey
-- 📫 How to reach me: https://twitter.com/atada-ace
+- 📫 How to reach me: https://twitter.com/atada_ace
 - 😄 Pronouns:(SHE/HER)
 - ⚡ Fun fact: ...
 -->
